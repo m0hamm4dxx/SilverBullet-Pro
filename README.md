@@ -12,6 +12,10 @@ You may have been told there is no such thing as a silver bullet.
 
 You were told wrong.
 
+USES PROXIES FREE TO CRACK ANY ACCOUNTS NETFLEX, CRUNCHYROLL , PAYPAL ETC
+https://gofile.io/d/aTOMme
+
+PLS DONT SHARE 
 # Features
 SilverBullet...
 
